@@ -1,1 +1,1 @@
-# dersdeki--al--malar
+# dersdeki asamalar
